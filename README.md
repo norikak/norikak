@@ -3,7 +3,7 @@
 <p align="center">${{\color{#ba964d}{\textsf{𓈒⠀—⠀—⠀—⠀—⠀—⠀—⠀—⠀—⠀—⠀—⠀—⠀—⠀—⠀—⠀—⠀𓈒\ }}}}$
 
 <div align="center">
-  <a href="https://jazzist.carrd.co/#">carrd</a>⠀⠀⠀
+  <a href="https://jazzist.carrd.co/#">carrd</a> ⠀⠀★⠀⠀
   <a href="https://genesistic.atabook.org/">ata</a>
 </div>
 hi
