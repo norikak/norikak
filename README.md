@@ -1,4 +1,4 @@
-<p align="center"><img width="600" height="250" alt="yo" src="https://i.imgur.com/5rDAOYL.gif" /></p>
+<p align="center"><img width="600" height="200" alt="yo" src="https://i.imgur.com/5rDAOYL.gif" /></p>
 
 <p align="center">${{\color{#ba964d}{\textsf{𓈒⠀—⠀—⠀—⠀—⠀—⠀—⠀—⠀—⠀—⠀—⠀—⠀—⠀—⠀—⠀—⠀𓈒\ }}}}$
 
