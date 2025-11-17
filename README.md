@@ -7,3 +7,5 @@
   
   jjba⠀account⠀. . .⠀main⠀is⠀<a href="https://github.com/genesistic">@genesistic</a> 
 </div></div>
+
+<h6>!⠀:⠀i am a donut joke hater. if you genuinely find them funny You are annoying and  i will kill you
