@@ -7,4 +7,4 @@
   jjba⠀account⠀. . .⠀main⠀is⠀<a href="https://github.com/genesistic">@genesistic</a> 
 </div></div>
 
-<h6>!⠀:⠀i tend to block and hide freely . please don't take it personally !
+<h6>!⠀:⠀i tend to block and hide freely sometimes . please don't take it personally !
