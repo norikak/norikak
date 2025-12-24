@@ -7,7 +7,7 @@
 
   ---
 
-hi hi you can call me bee or kak
+you can call me bee or kak Just whichever one you prefer
 
 14 | any/all pronouns idc
 
