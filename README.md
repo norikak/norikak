@@ -11,4 +11,4 @@ hi hi you can call me bee or kak
 
 14 | any/all pronouns idc
 
-<h6>!⠀:⠀i tend to block and hide freely sometimes . please don't take it personally !
+<h6>!⠀:⠀i sometimes tend to block and hide freely . please don't take it personally !
