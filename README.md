@@ -1,10 +1,14 @@
-<p align="center"><img width="524" height="323" alt="kakyoin panel from crazy diamond's demonic heartbreak Ok" src="https://i.imgur.com/axTNtJE.png"/></p>
+<p align="center"><img width="524" height="323" alt="What" src="https://i.postimg.cc/DfYPBGSM/what.png"/></p>
 
 <div align="center">
-  <a href="https://rentry.co/NKakyoin">rentry</a> ⠀⠀★⠀⠀
-  <a href="https://genesistic.atabook.org/">ata</a>
-  
-  jjba⠀account⠀. . .⠀main⠀is⠀<a href="https://github.com/genesistic">@genesistic</a> 
-</div></div>
+★⠀leave a message on my <a href="https://genesistic.atabook.org/">ata</a>
+
+  pretty please...
+
+  ---
+
+hi hi you can call me bee or kak
+
+14 | any/all pronouns idc
 
 <h6>!⠀:⠀i tend to block and hide freely sometimes . please don't take it personally !
