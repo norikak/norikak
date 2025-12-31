@@ -9,6 +9,6 @@
 
 you can call me bee or kak Just whichever one you prefer
 
-14 | any/all pronouns idc
+15 | any/all pronouns idc
 
 <h6>!⠀:⠀i sometimes tend to block and hide freely . please don't take it personally !
